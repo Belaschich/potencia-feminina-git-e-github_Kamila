@@ -26,3 +26,4 @@ Informe seu nome e usuário do github, vamos fortalecer a nossa rede!
 [Esther W Lucena](https://github.com/estherwl)
 
 [Izabela Schich](https://github.com/Belaschich)
+
